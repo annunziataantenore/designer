@@ -23,5 +23,6 @@ e alle dinamiche di partecipazione tramite laboratori didattici tra cui quelli s
 Nella sua attività di architetto progettista rivolge la sua attenzione principalmente al benessere integrale dell’uomo 
 unendo e armonizzando i vari aspetti del comfort ambientale: termico, visivo, degli spazi di vita "living spaces". 
 
-Dal 2006 affianca alla sua attività professionale l'esperienza didattica nelle scuole secondarie. Riceve abilitata all’insegnamento in tecnologia con una tesi su un esperienza di progettazione laboratoriale 
-tramite la partecipazione dal titolo: “Cosa creiamo in giardino?”
+Dal 2006 affianca alla sua attività professionale l'esperienza didattica nelle scuole secondarie di Prato. Riceve l'abilitazione all’insegnamento in Tecnologia presentando come tesi un esperienza di progettazione laboratoriale partecipativo: “Cosa creiamo in giardino?”.
+
+La parola chiave "partecipazione" è la guida delle sue attività più recenti.
