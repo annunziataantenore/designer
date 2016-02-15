@@ -9,11 +9,11 @@ Inizia il percorso professionale nel Centro Stile della Natuzzi SpA come designe
 
 Diventa poi project manager nel settore retail internazionale progettando stores e spazi espositivi in tutto il mondo.
 
-Nel 2004 decide di lasciare la grande azienda per sviluppare un percorso per impegnarsi in più ambiti di progettazione.
+Nel 2004 decide di lasciare la grande azienda per proseguire il proprio percorso in più ambiti di progettazione.
 
 Si trasferisce in Toscana dove inizia diverse collaborazioni con enti pubblici e privati, spaziando dal design alla grafica, 
 dall’architettura di interni fino alle tematiche legate all’efficienza energetica,  
-accentuando la sua attenzione alle proporzioni, come alla scelta dei materiali e alle forme finalizzato sempre per un recupero della bellezza e dell'armonia.
+accentuando la sua attenzione alle proporzioni, come alla scelta dei materiali e alle forme per un recupero della bellezza e dell'armonia.
 
 Intraprende sempre più attività mirate al risparmio energetico in ambito edilizio 
 e alle tematiche dell’eco sostenibilità, specie quelle legate agli stili di vita, 
@@ -23,6 +23,5 @@ e alle dinamiche di partecipazione tramite laboratori didattici tra cui quelli s
 Nella sua attività di architetto progettista rivolge la sua attenzione principalmente al benessere integrale dell’uomo 
 unendo e armonizzando i vari aspetti del comfort ambientale: termico, visivo, degli spazi di vita "living spaces". 
 
-Dal 2006 affianca alla sua attività professionale l'esperienza didattica nelle scuole secondarie di Prato. Riceve l'abilitazione all’insegnamento in Tecnologia presentando come tesi un esperienza di progettazione laboratoriale partecipativo: “Cosa creiamo in giardino?”.
+Dal 2006 affianca alla sua attività professionale quella didattica nelle scuole secondarie di Prato. Riceve l'abilitazione all’insegnamento in Tecnologia presentando come tesi un esperienza di progettazione laboratoriale partecipativa dal titolo: “Cosa creiamo in giardino?”.
 
-La parola chiave "partecipazione" è la guida delle sue attività più recenti.
