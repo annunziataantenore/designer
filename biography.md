@@ -9,7 +9,7 @@ Inizia il percorso professionale nel Centro Stile della Natuzzi SpA come designe
 
 Diventa poi project manager nel settore retail internazionale progettando stores e spazi espositivi in tutto il mondo.
 
-Nel 2004 decide di lasciare la grande azienda per proseguire il proprio percorso in più ambiti di progettazione.
+Nel 2004 decide di lasciare l'azienda per proseguire il proprio percorso professionale in più ambiti di progettazione.
 
 Si trasferisce in Toscana dove inizia diverse collaborazioni con enti pubblici e privati, spaziando dal design alla grafica, 
 dall’architettura di interni fino alle tematiche legate all’efficienza energetica,  
